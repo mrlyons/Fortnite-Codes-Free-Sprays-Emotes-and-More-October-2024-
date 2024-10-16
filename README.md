@@ -2,7 +2,7 @@
 
 Take a glimpse at the most recent Fortnite codes that became available for use during October 2024.
 
-[✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 Regularly, Epic Games joins forces with prominent celebrities, brands, and unexpected personalities to introduce fresh content to Fortnite. Acquiring these items can be costly and challenging. Fortunately, Epic Games has integrated a code system into the game that allows players to claim complimentary in-game rewards such as V-Bucks and cosmetics.
 
